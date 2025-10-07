@@ -176,4 +176,4 @@ It really helps me keep improving it!
 
 ---
 
-**Developed with ❤️ by Abdulazeez Abolurin**
+**Developed by Mr Azeez**
